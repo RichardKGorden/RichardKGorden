@@ -159,4 +159,4 @@ I am a programmer all of my life, since my 19, keeping latest technologies. Now 
 <hr>
 <br>
 
-Here is my [eMail](mailto:axiom88guru@gmail.com?Subject=Hello!) and [Skype](https://join.skype.com/invite/IbRDhNJhiv1n).
+Here is my [eMail](superdevelopmentstar0808@gmail.com![Uploading image.png…]()?Subject=Hello!).
